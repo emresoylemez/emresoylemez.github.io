@@ -1,1 +1,0 @@
-# emresoylemez.github.io
